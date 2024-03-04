@@ -1,0 +1,1 @@
+# tinh so thoc tren ban co
